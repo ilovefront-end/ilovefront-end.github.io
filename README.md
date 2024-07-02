@@ -4,4 +4,4 @@ WIP.
 
 If you have any idea about what should run on this domain, or you wanna hold this domain, contact me.
 
-[me@wizd.dev](mailto:me@wizd.dev)
+[me@ilovefe.com](mailto:me@ilovefe.com)
